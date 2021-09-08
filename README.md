@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @lilithbruh
+- 👀 I’m interested in piano, Evangelion, video games.
+- 🌱 I’m currently learning java.
+- 💞️ I’m looking to collaborate on nothing.
+- 📫 How to reach me: my Discord is sh0re#6899.
